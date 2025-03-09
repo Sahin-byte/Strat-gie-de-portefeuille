@@ -1,1 +1,1 @@
-# Strat-gie-de-portefeuille
+# Stratégie-de-portefeuille
